@@ -1,5 +1,5 @@
 
-## Gringo XP v109 [Download](https://shortxlinks.in/FFhack)
+## Gringo XP v109 Download
 ## Gringo XP 109 APK
 ## Gringo XP 109 Mod Menu
 ## Gringo XP 109 Latest Version
